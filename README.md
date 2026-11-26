@@ -8,7 +8,7 @@ Entry for the [make.fun bounty](https://make.fun/bounty/u-pangg7-the-best-meal-y
 
 ## The entry
 
-> The best meal I ever had was a $3 nasi goreng at 2 a.m. on a plastic stool — no menu, no reservation, just wok fire and a cook who nodded like we had known each other for years.
+> The best meal I ever had was 5k gorengan from a nameless cart, eaten standing in the rain — the vendor laughed, I nearly cried, and nothing since has tasted that alive.
 
 ## Run it
 
